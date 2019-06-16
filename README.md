@@ -10,7 +10,9 @@ I have worked in sports statistics before as a junior analyst at the St. Bernard
 
 ### Learning Styles
 
-https://tinyurl.com/y4wuk8wb
+![myers_briggs](https://user-images.githubusercontent.com/51364646/59558202-f92f4c80-902f-11e9-9759-79838b332f0e.PNG)
+
+
 
 The results of these tests mean that I’m a visual learner that is interested in security and peaceful living, I’m extremely thorough, responsible and dependable. I believe that the traits I possess would help in a team environment because being thorough and understanding of others are very important team-based traits. I should consider this when forming a team to try and find like-minded individuals so that we can all work efficiently together.
 
