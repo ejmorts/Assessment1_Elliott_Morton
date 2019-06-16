@@ -1,6 +1,6 @@
 ### My Profile
 
-https://au.jora.com/job/Sports-Performance-Analyst-05cd25bdc76e92e336fa791702932ec7?from_url=https%3A%2F%2Fau.jora.com%2FSports-Analyst-jobs-in-Melbourne-VIC&sl=Melbourne+VIC&sol_srt=7e526bdd-2456-4bad-8a6c-9da3673b6c94&sp=serp&sponsored=false&sq=Sports+Analyst&sr=1&tk=kHUaM9MHH7xVD4n0rWvc-8uKnjSpWplrQ0XNBNcE_
+![sports performance analyst](https://user-images.githubusercontent.com/51364646/59558213-575c2f80-9030-11e9-9074-52d154541d0f.PNG)
 
 The following is a job as a Sports Performance Analyst, Premier Data is a sports analysis company that specializes in providing coaches and players at suburban football with statistics, edits and highlights from their games. The main duties of this role are: coding Australian Rules football games, assisting in producing reports and analysing match statistics, assisting in producing highlight videos and also coding other seasonal sports as required.
 
