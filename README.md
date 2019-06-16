@@ -2,7 +2,7 @@
 
 ![sports performance analyst](https://user-images.githubusercontent.com/51364646/59558213-575c2f80-9030-11e9-9074-52d154541d0f.PNG)
 
-The following is a job as a Sports Performance Analyst, Premier Data is a sports analysis company that specializes in providing coaches and players at suburban football with statistics, edits and highlights from their games. The main duties of this role are: coding Australian Rules football games, assisting in producing reports and analysing match statistics, assisting in producing highlight videos and also coding other seasonal sports as required.
+The above is a job as a Sports Performance Analyst, Premier Data is a sports analysis company that specializes in providing coaches and players at suburban football with statistics, edits and highlights from their games. The main duties of this role are: coding Australian Rules football games, assisting in producing reports and analysing match statistics, assisting in producing highlight videos and also coding other seasonal sports as required.
 
 This job is appealing to me because I’ve always had a great interest in statistics in sport as well as analyzing those statistics to find useful information to benefit the team.
 I have worked in sports statistics before as a junior analyst at the St. Bernards Football Club for several years, to obtain this job I will have to study a Bachelor of Communication degree then I will have to undertake as many classes as I can in statistics, probability and computer sciences so that I can build a solid foundation of education that is necessary in being a sports analyst.
@@ -14,6 +14,7 @@ I have worked in sports statistics before as a junior analyst at the St. Bernard
 
 ![learning_styles](https://user-images.githubusercontent.com/51364646/59558282-e584e580-9031-11e9-8d46-fa478b1d793c.PNG)
 
+![creativity_test](https://user-images.githubusercontent.com/51364646/59558289-0cdbb280-9032-11e9-83ff-9d139bc04140.PNG)
 
 
 The results of these tests mean that I’m a visual learner that is interested in security and peaceful living, I’m extremely thorough, responsible and dependable. I believe that the traits I possess would help in a team environment because being thorough and understanding of others are very important team-based traits. I should consider this when forming a team to try and find like-minded individuals so that we can all work efficiently together.
