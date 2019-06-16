@@ -5,7 +5,7 @@
 The above is a job as a Sports Performance Analyst, Premier Data is a sports analysis company that specializes in providing coaches and players at suburban football with statistics, edits and highlights from their games. The main duties of this role are: coding Australian Rules football games, assisting in producing reports and analysing match statistics, assisting in producing highlight videos and also coding other seasonal sports as required.
 
 This job is appealing to me because I’ve always had a great interest in statistics in sport as well as analyzing those statistics to find useful information to benefit the team.
-I have worked in sports statistics before as a junior analyst at the St. Bernards Football Club for several years, to obtain this job I will have to study a Bachelor of Communication degree then I will have to undertake as many classes as I can in statistics, probability and computer sciences so that I can build a solid foundation of education that is necessary in being a sports analyst.
+I have worked in sports statistics before as a junior analyst at the St. Bernards Football Club for several years, to obtain this job I will have to complete a Graduate Certificate in Sports Analytics then further my studies in statistics, probability and computer sciences so that I can build a solid foundation of education that is necessary in being a sports analyst.
 
 
 ### Learning Styles
